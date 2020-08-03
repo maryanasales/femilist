@@ -1,2 +1,2 @@
 # femilist
-woman stuff ¯\_(ツ)_/¯
+coming soon
